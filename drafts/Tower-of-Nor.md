@@ -1,4 +1,6 @@
-## on the Isle of the Elder Bee
+## On the Isle of the Elder Bee
+
+### Chapter 1: The Old Oracle of Nor
 
 *Imagine that Whence why you sense all of Sound and
 Those spectrums of Lightning and that Odour around
@@ -52,26 +54,30 @@ If not you?
 
 [A beat]
 
-*Here* is the **Naught**.
+[A pause betwixt]
 
-[A sigh, and then two... and then the last few]
+*There* is the **Naught**.
 
-As you forsake All of your *feeling*...  
-*Then what feels for You*?
+[A sigh, and then two... thus begins the last few]
+
+As you forsake All your *feeling*...  
+*What then feels for You*?
 
 ---
 
-Could you then better feel these currents of air,  
-and the ripples through rock beneath your old bones? 
+Could you then best be felt by these currents of air,  
+Embraced by ripples of rock 'neath your bones? 
 
-Might you too tune those low, and go so much further below, 
-At one with the very most Ancient of Stones?
+Might you too shun those off, and fall much further below, 
+At Whence with the very most Ancient of Stones?
 
-Dig you down for your own beating heart.
-I had you the spade and the lamp. 
+Dig you now down for your own beating heart --
+Here, I have made you the spade and the lamp. 
 
-The gravity grabs you and hurries your pace -
-You haven't much longer in this cavernous place.
+Our gravity grabs us and hurries our pace -
+We haven't much longer in this cavernous Space.
+
+[ ... ]
 
 You drop down to the chamber of magmatic blood
 Beats your heart like the Earth from whence it arose
