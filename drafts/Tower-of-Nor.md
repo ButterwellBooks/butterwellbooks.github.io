@@ -1,24 +1,33 @@
 ## On the Isle of the Elder Bee
 
-### Chapter 1: The Old Oracle of Nor
+### Chapter One: At the Oracle of Older Nor
 
-*Imagine that Whence why you sense all of Sound and
-Those spectrums of Lightning and that Odour around
-Waves sear from the Stars making Tremors in Ground
-Within mights from all Metals most Magicallii bound!*
+*Seek for the Whence in Ye sense all of Sound
+Those spectrum-long traces, spilled Odours around
+Waves searing through Stars casting Tremors in Ground
+Within mights from the Metals most Magical bound!*
+
+
 
 ---
 
-And what then,
-If you do grasp the true All? 
-All Sound in its size; Lightning's surprise? 
-That Odour impure within Pheromone's lure?
-Ancient Fires and Ices waged in warring devices?
-Wanderous Tremor through Ground and the Seas
-Birthing forces fled forth from the flowers and trees? 
-Revealed is that mad-myriad, Nature's Name --
-As our Wailingly Woon grasps 
-Truth thus the Same?
+And what then of You,
+When We grasp at Her Gnown? 
+
+Each Song of Her shape with Lightnings imbued
+Every Lightning escape of Her Pheromone feud
+Birthed ripples Her Soils, wilds weather Her Seas
+Favour flows forth from Her Flowers and Trees
+Reveals the Mad Myriad, The Natural's name
+
+Her Wailing Woons seize at these
+Secrets the same.
+
+So
+See
+Your
+Powers
+Unbound
 
 How would you choose then, how to know what is True? 
 
